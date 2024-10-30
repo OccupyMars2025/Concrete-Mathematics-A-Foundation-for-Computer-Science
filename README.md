@@ -4,3 +4,5 @@ what he'd learned as a mathematics major in college. So he introduced a new
 course, teaching what he wished somebody had taught him
 
 ## [On the enfeeblement of mathematical skills by ‘Modern Mathematics’ and by similar soft intellectual trash in schools and universities](https://gwern.net/doc/math/humor/1968-hammersley.pdf)
+
+- [x] 2024/10/29 8:00 - 10/30 8:10: study the preface, thought-provoking 
